@@ -1,3 +1,3 @@
-![mehh](https://github.com/user-attachments/assets/dac86314-956f-41c8-b63e-27f230b147bc)
-![Untitled2354_20260125181250](https://github.com/user-attachments/assets/1da4666f-70db-45b7-86f8-cdc694d5b134)
-![ee](https://github.com/user-attachments/assets/da6f1364-036b-4518-8588-eb3a8766d66c)
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/639d83c3-d8b8-4477-b125-b747ddbd5a37" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/a07cf43d-dbb4-4fd8-94db-bd4926cf7bed" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/5ce4dc73-f998-49d0-a18f-bed3f73a8535" />
